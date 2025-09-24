@@ -5,4 +5,4 @@ Jacob
 I like maple leafs and syrup and moose
 
 Sam
-I play electric guitar and love tattoos
+I play electric guitar and I'm from Texas
